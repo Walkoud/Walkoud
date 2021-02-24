@@ -17,4 +17,12 @@ Here are some ideas to get you started:
 -->
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=dc143c) ![https://discord.link/hap](https://img.shields.io/discord/736923536475684974?label=Join%20HΛP&logo=discord&style=flat-square)
+![]() ![]()
+
+
+A simple way to see how many people have visited your website or GitHub repo.
+<p align="center">
+<a href="https://komarev.com/ghpvc/?username=your-github-username&color=dc143c"><img src="https://komarev.com/ghpvc/?username=your-github-username&color=dc143c"></a>
+<a href="https://img.shields.io/discord/736923536475684974?label=Join%20HΛP&logo=discord&style=flat-square"/></a>
+
+</p>
