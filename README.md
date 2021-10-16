@@ -1,10 +1,19 @@
 <a href="https://64.media.tumblr.com/9496f2158af11714e46e2f061460784e/tumblr_oylr3qHBRB1u9xqtso1_500.gif"><img src="https://64.media.tumblr.com/9496f2158af11714e46e2f061460784e/tumblr_oylr3qHBRB1u9xqtso1_500.gif"></a>
-
+　　　　　　　　　　.　　　　　　　　　　 ✦ 　　　　   　
+　　　˚　　　　　　　　　　　　　　*　　　　　　 
+ 　　　　　　　　　　　　　　　.　　　　　　　　　　　　　　. 
+　　 　　　　　　　 ✦ 　　　　　　　　　　 　 ‍ ‍ ‍ ‍ 　　　　 　　　　　　　　　　　　,
+.
 
 　　   　　　　　 ✦ 　　　　　　　         　        　　　　
 　　 　　　　　　　 　　　　　.　　　　　　　　　　　　　　　　　　.　　　　　    　　. 
 　 　　　　　.　　　　 　　　　　   　　　　　.　　　　　　　　　　　.　　　　　　　　　　   　
+　　 　　　　　　　 　　　　　.　　　　　　　　　　　　　　　　　　.　　　　　    　　. 
+　 　　　　　.　　　　 　　　　　   　　　　　.　　　　　　　　　　　.　　　　　　　　　　   　
 
+　˚　　　　　　　　　　　　　　　　　　　　　ﾟ　　　　　.　　　　　　　　　　　　　　　. 
+　　 　
+‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ,　 　　　　　　　　　　　　　　*
 　˚　　　　　　　　　　　　　　　　　　　　　ﾟ　　　　　.　　　　　　　　　　　　　　　. 
 　　 　
 ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ,　 　　　　　　　　　　　　　　*
