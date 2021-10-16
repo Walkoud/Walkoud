@@ -1,5 +1,5 @@
+<a href="https://64.media.tumblr.com/4fc242c89109404c91898446fd27e00f/tumblr_oyk558Khol1u9xqtso1_500.gif"><img src="https://64.media.tumblr.com/4fc242c89109404c91898446fd27e00f/tumblr_oyk558Khol1u9xqtso1_500.gif"></a>
 
-![nissan](https://64.media.tumblr.com/4fc242c89109404c91898446fd27e00f/tumblr_oyk558Khol1u9xqtso1_500.gif)
 
 　　   　　　　　 ✦ 　　　　　　　         　        　　　　
 　　 　　　　　　　 　　　　　.　　　　　　　　　　　　　　　　　　.　　　　　    　　. 
