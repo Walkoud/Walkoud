@@ -2,7 +2,7 @@
      width="1000" 
      height="auto">
 
-[![Discord Presence](https://lanyard.cnrad.dev/api/:id)](https://discord.com/users/:804766267742617612)
+[![Discord Presence](https://lanyard.cnrad.dev/api/804766267742617612)](https://discord.com/users/804766267742617612)
 　　　　　　　　　　.　　　　　　　　　　 ✦ 　　　　   　
 　　　˚　　　　　　　　　　　　　　*　　　　　　 
  　　　　　　　　　　　　　　　.　　　　　　　　　　　　　　. 
