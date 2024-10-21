@@ -1,6 +1,4 @@
-<img src="https://64.media.tumblr.com/9496f2158af11714e46e2f061460784e/tumblr_oylr3qHBRB1u9xqtso1_500.gif"
-     width="1000" 
-     height="auto">
+
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/804766267742617612)](https://discord.com/users/804766267742617612)
 　　　　　　　　　　.　　　　　　　　　　 ✦ 　　　　   　
