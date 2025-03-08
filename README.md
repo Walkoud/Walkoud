@@ -1,4 +1,4 @@
-Discord : walkoud
+Discord : walkoud \n
 2nd Discord : walkood
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/804766267742617612)](https://discord.com/users/804766267742617612)
