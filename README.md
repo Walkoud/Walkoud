@@ -1,7 +1,7 @@
 Discord : walkoud <br>
 2nd Discord : walkood
 
-[![Discord Presence](https://lanyard.cnrad.dev/api/804766267742617612&idleMessage=blocked%20account%20actually)](https://discord.com/users/804766267742617612)
+[![Discord Presence](https://lanyard.cnrad.dev/api/804766267742617612?idleMessage=blocked%20account%20actually)](https://discord.com/users/804766267742617612)
 [![Discord Presence](https://lanyard.cnrad.dev/api/708004377016664124?bg=tr&idleMessage=second%20account)](https://discord.com/users/708004377016664124)
 　　　　　　　　　　.　　　　　　　　　　 ✦ 　　　　   　
 　　　˚　　　　　　　　　　　　　　*　　　　　　 
